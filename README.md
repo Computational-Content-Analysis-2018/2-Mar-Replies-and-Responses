@@ -1,0 +1,2 @@
+# Comments on: Replies and Responses
+[Goffman, Erving.  1981. Conclusion (only pps. 308-311) from “Replies and Responses.” Language in Society 5 (3): 257-313.](('https://www.jstor.org/stable/pdf/4166887.pdf',))
